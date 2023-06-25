@@ -1,6 +1,6 @@
 ## Cycle
 
-Every Wednesday 23:03
+Every Wednesday 22:03
 
 ---
 
